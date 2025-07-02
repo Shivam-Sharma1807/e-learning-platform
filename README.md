@@ -29,3 +29,7 @@ User can also contact us.
 
 OUTPUTS :-
 
+![Image](https://github.com/user-attachments/assets/b6e9eb7c-a757-48aa-ac3e-57866ccb3a12)
+![Image](https://github.com/user-attachments/assets/657fb401-39e1-460d-9681-631e93310021)
+![Image](https://github.com/user-attachments/assets/be03bd36-c529-4d6a-8b24-4489549f493c)
+![Image](https://github.com/user-attachments/assets/07b2c21a-9241-4826-9c99-49ad3ac66d3a)
